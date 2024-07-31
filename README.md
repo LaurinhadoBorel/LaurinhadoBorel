@@ -13,4 +13,5 @@ Você pode não entrar em contato comigo 📫
 
 
 
-!.[...].(https://media1.tenor.com/m/pFz1Q12_hXEAAAAd/cat-holding-head-cat.gif)
+!.[...].![image](https://github.com/user-attachments/assets/9079f42f-9004-49c1-8c3c-3f12a06cda0c)
+
